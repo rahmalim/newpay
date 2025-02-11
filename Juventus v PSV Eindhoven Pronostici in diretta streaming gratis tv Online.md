@@ -1,3 +1,9 @@
+📺📱👉◄◄🔴https://viralleakedvideo.com/Soccer-Live/
+
+📺📱👉◄◄🔴https://viralleakedvideo.com/Soccer-Live/
+
+📺📱👉◄◄🔴https://viralleakedvideo.com/Soccer-Live/
+
 Il tabellone dei playoff poteva regalare alla Juve un derby contro il Milan per andare agli ottavi e invece il sorteggio è stato favorevole, con i bianconeri che sfideranno il Psv per dare vita al remake della prima giornata di Champions League che sembra appartenere a un’altra era geologica. All’epoca, a settembre, la nuova squadra di Motta sembrava avviata verso una rivoluzione vincente, gli olandesi arrivarono allo Stadium a giocare a viso aperto e furono travolti 3-1 anche con una magia di Yildiz segnando nel recupero quello che fu il primo gol ufficiale incassato in stagione dai padroni di casa. A febbraio la storia è diversa, i padroni di casa sono in difficoltà, i dubbi sulla nuova gestione non diminuiscono anche se Kolo Mouani sta risolvendo gran parte dei problemi con cinque gol in tre apparizioni, gli ospiti sono comunque in testa alla Eredivisie anche se incalzati dall’Ajax e hanno chiuso al quattordicesimo posto nella nuova classifica unica, appena due in meno della quota che è valsa l’ottavo posto. Si gioca per entrare tra le prime sedici del torneo ma per la Juve in ballo c’è anche una fetta di futuro, non tanto dal punto di vista economico quanto sul piano di un progetto che sul piano del gioco stenta a decollare.
 
 Nella Juve possibile panchina iniziale per Koopmeiners e Vlahovic, con Veiga in difesa, Locatelli e Douglas Luiz a centrocampo e McKennie nel reparto offensivo con Yildiz, Nico Gonzalez e Kolo Mouani, queste le parole di Thiago Motta.
